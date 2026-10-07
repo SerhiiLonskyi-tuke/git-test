@@ -1,1 +1,1 @@
-ahoj pani Mizakova
+Dobry den, pani Mizakova
